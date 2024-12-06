@@ -1,1 +1,1 @@
-# PierwszyKrokInwestycji-investing-website-MP-PL-II
+# KrokInwestycji-investing-website-MP-PL-II
